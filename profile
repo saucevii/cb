@@ -18,9 +18,9 @@
 <b>* IF YOU LIKE ME </b>- 100 tip
 <b>* AHEGAO </b>- 101 tip
 <b>* FISHEGAO </b>- 102 tip
+<b>* GLASSES </b>- 103 tip
 <b>* TAKE OFF BRA </b>- 111 tip
 <b>* BLACK TIGHTS </b>- 133 tip
-<b>* GLASSES </b>- 122 tip
 <b>* SING A SONG </b>- 150 tip
 <b>* OIL BOOBY SHOW </b>- 160 tip
 <b>* PANTIES OFF </b>- 199 tip
