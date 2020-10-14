@@ -30,7 +30,7 @@
 <b>* PUSSY PLAY </b>- 300 tip
 <b>* SCARY CLOWN MASK</b>- 333 tip
 <b>* IF YOU LOVE ME! </b>- 369 tip
-<b>* BUY ME BREAKFAST </b>- 444 tip
+<b>* BUY ME RAMEN :) </b>- 444 tip
 <b>* LUSH CONTROL (5 min) </b>- 499 tip
 <b>* FULL NAKED </b>- 500 tip
 <b>* CUM SHOW </b>- 555 tip
