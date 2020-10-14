@@ -8,7 +8,7 @@
     <td><br><img src="https://i.ibb.co/BfF7RdC/tipmenu.png"</td><p style="font-family:cambria"><b>* KISS ME </b>- 25 tip
 <b>* SUCK FINGER </b>- 33 tip
 <b>* PM </b>- 50 tip
-<b>* SPANK MY ASS HARD ( 3 times ) </b>- 44 tip
+<b>* SPANK MY ASS HARD ( 4 times ) </b>- 44 tip
 <b>* SHOW FEET </b>- 55 tip
 <b>* SONG REQUEST </b>- 66 tip
 <b>* FLASH MY BOOTY </b>- 77 tip
