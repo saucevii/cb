@@ -1,6 +1,6 @@
 <table>
   <tr>
-    <td><img src="https://i.ibb.co/3F99BV9/ayuki.jpg"</td><br>
+    <td><img src="https://i.ibb.co/mFPYKR1/ayuki.jpg"</td><br>
   </tr>
 </table>
 <table>
@@ -23,9 +23,10 @@
 <b>* I LOVE YOU AYUKI! </b>- 200 tip
 <b>* BLOWJOB </b>- 222 tip
 <b>* STRIPTEASE </b>- 299 tip
-<b>* FINGER MY PUSSY </b>- 333 tip
+<b>* PUSSY PLAY </b>- 333 tip
 <b>* SCARY CLOWN MASK</b>- 404 tip
 <b>* BUY ME BREAKFAST </b>- 444 tip
+<b>* LUSH CONTROL (5 min) </b>- 499 tip
 <b>* FULL NAKED </b>- 500 tip
 <b>* CUM SHOW </b>- 555 tip
 <b>* SING A SONG </b>- 666 tip
